@@ -1,0 +1,1 @@
+oruzlarimz haqida ma'lumotlar bor

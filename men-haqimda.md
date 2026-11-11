@@ -1,0 +1,1 @@
+men haqimda ma'lumot bor
